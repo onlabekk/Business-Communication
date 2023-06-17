@@ -1,1 +1,1 @@
-# Business-Communication
+# Business Communication
